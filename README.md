@@ -1,1 +1,1 @@
-My first readme
+ALX be like sey I dey hell
